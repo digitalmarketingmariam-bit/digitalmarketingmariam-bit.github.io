@@ -1,1 +1,1 @@
-# digitalmarketingmariam-bit.github.io
+# mariamdigital.github.io
